@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 💙
+### vindas ao meu perfil 💙
 
 Meu nome é Júlia Rodrigues
 
@@ -12,4 +12,4 @@ juliarodriguesg2007@gmail.com
 
 @juliargdz
 
-![descrição do GIF](https://media1.tenor.com/m/zqbTB_um-dkAAAAd/heart-shape-heart-sign.gif)
+![descrição do GIF](https://media.tenor.com/2hx8E0hvkFoAAAAM/chris-evans-kisses.gif)

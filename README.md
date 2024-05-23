@@ -6,7 +6,7 @@ Meu nome é Júlia Rodrigues
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo :mailbox
+### Você pode entrar em contato comigo 📫
 
 juliarodriguesg2007@gmail.com
 
